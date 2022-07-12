@@ -1,1 +1,1 @@
-![](https://imgur.com/a/Pamn3Bf)
+![alt tag](https://imgur.com/a/Pamn3Bf)
